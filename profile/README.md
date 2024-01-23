@@ -1,0 +1,1 @@
+Welcome to [Spliit](https://spliit.app)’s organization!
